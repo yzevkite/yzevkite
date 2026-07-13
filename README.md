@@ -2,5 +2,4 @@
 
 ![Image](https://github.com/user-attachments/assets/357105d8-ab12-436f-b8ac-8f62e36c1cef)
 
-Hi guys im still learning to dec my gh
-ily all
+errr not that active
